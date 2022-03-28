@@ -1,1 +1,0 @@
-# Social-design.github.io
